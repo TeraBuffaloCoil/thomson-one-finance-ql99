@@ -1,4 +1,4 @@
-# 
+# Thomson ONE offers comprehensive financial data, analytics, and research for investment professionals.
 
 
 
